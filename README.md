@@ -1,1 +1,1 @@
-# fxnews-
+# fxnews- https://www.fxstreet.com/news
